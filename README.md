@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+My Name is Carol Watson-Omar. I am transitioning from IT Support to a field in Software Development.
 <!--
 **carolomar/carolomar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
