@@ -1,5 +1,5 @@
 ### Hi there 👋
-My Name is Carol Watson-Omar. I am transitioning from IT Support to a field in Software Development.
+My Name is Cazie Omar. I enjoy life, and let my passions lead the way
 
 I am editing in Kraken
 editing on Kraken with my directions
